@@ -1,5 +1,5 @@
 # BrasileirOS, mas...
 
-Agora não, ainda estamos em construção :cry: 
+Agora não, ainda estamos em construção 😢
 
 Volte em breve...
